@@ -1,2 +1,3 @@
-Nothing Can Be Explained
-The truth is a dream
+Ncbe was here!
+
+I love coding :3
